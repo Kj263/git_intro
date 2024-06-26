@@ -1,1 +1,2 @@
 Kjirsten Fastabend
+fastabek@oregonstate.edu
